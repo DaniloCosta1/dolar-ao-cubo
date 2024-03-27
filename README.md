@@ -1,2 +1,0 @@
-# dolar ao cubo
- 
